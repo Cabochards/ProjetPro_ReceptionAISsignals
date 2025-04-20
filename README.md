@@ -1,2 +1,2 @@
 # ProjetPro_ReceptionAISsignals
-![THIRION_Geoffrey_DECASTRO_Kier_poster](https://github.com/user-attachments/assets/ba5cf1e5-916b-4fef-ac41-69d27b1e13f5)
+![En-tête (1)](https://github.com/user-attachments/assets/fef9dfa6-8d01-4680-b042-7933d5cc4185)
